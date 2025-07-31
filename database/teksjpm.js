@@ -1,3 +1,0 @@
-XlesyVIP
-KALO MAU BELI SCRIPT NO ENC 
-  PM https://wa.me/6283877636168
